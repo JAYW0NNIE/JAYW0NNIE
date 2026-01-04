@@ -1,16 +1,12 @@
-## Hi there 👋
 
-<!--
-**JAYW0NNIE/JAYW0NNIE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+❛　Even if **I** sleep in *infinity*
+Don't leave **my universe**.　❜%%<-
+->![ac @hati_ozi555 on twt](https://files.catbox.moe/xlhxd0.jpeg)<-
+✿◞◟)　　**Ravyun** or Rivi
+𝜗 ♡ 𝜚 　*S*he　 ╱ 　Them 　 ◠◠
+ ![div](https://files.catbox.moe/diyrmd.png){230:22}
+　✢ 　　Lesbian 　‎ ྀ⌟
+⠀⠀ *Asian*　　 Enpqt　𓂅 ⠀་
+ ˘⠀⠀⠀𓏏𓏏　19
+ !~Taken~!⠀  𓈒
