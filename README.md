@@ -1,1 +1,1 @@
-Ugh too lazy to make github
+Ugh too lazy to make readme
